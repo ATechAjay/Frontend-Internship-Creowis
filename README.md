@@ -1,0 +1,1 @@
+View the all topics from [here](https://docs.google.com/document/d/12cRmvX51kK65Jix2myBRnt1pCRtQYmqFXzvtLsu1Nyo/edit?usp=sharing)!
